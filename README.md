@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently working on a BPMS project<br>and currently learning everityhing like a child!
+I'm currently working on a BPMS project<br>and currently learning everything like a child!
 
 
 ## 🌐 Socials:
